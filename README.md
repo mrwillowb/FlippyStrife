@@ -1,0 +1,2 @@
+# FlippyStrife
+Privacy Policy
